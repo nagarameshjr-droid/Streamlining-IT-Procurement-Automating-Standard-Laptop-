@@ -1,1 +1,1 @@
-# Streamlining-IT-Procurement-Automating-Standard-Laptop-
+# Streamlining-IT-Procurement-Automating-Standard-Laptop-<img width="1366" height="768" alt="{59F31289-2444-489C-BD08-C02D618246A2}" src="https://github.com/user-attachments/assets/aa52ff35-40cc-4d85-9a41-dfcd88275b98" />
